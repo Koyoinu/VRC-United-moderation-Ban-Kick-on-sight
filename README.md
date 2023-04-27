@@ -1,8 +1,8 @@
-# This is a list of all the United Moderation staff there alts and there name takers
+# This is a list of all the United Moderation staff there alts and their name takers
 
 Main: The main accounts of the official United Moderation staff world moderators 
 
-Alts: The alternate accounts of there mains
+Alts: The alternate accounts of their mains
 
 Name takers: The people that like to help the United Moderation staff in ratting out people
 
@@ -14,7 +14,7 @@ BOS: Block on Sight
 This list was created on 4/24/2023 and was updated 4/26/2023
 
 
-the reason why this list was created is because the United Moderation staff are known to not like Curtain groups of vrchat like Fatality, Shadow fox den, shaderXR and so on they are also known to stalk people they dont like in other worlds and these people are apart of a bigger group called United moderation of VR while the concept is good it is maintained by power hungry indivisuals that also break vrchats guidelines of the udon moderation tool that you can find here
+the reason why this list was created is because the United Moderation staff are known to not like certain groups of vrchat like Fatality, Shadow fox den, shaderXR and so on they are also known to stalk people they dont like in other worlds and these people are a part of a bigger group called United moderation of VR while the concept is good it is maintained by power hungry individuals that also break vrchats guidelines of the udon moderation tool that you can find here
 
 https://docs.vrchat.com/docs/udon-moderation-tool-guidelines
 
@@ -22,11 +22,11 @@ We are United freedoms of VR and we stand for the Creative Freedoms of the peopl
 
 here are the list of reasons why these people should be blocked by you if you so choose to
 
-If you are accociated wwith any group such as Fatality, shadow fox den, shaderXR and so on they will take you as there taget and abuse the Udon moderation tool against you
+If you are associated wwith any group such as Fatality, shadow fox den, shaderXR and so on they will take you as their taget and abuse the Udon moderation tool against you
 
-if you show any signs of disobediance against them they will be tempted to use the Udon moderation tool against you
+if you show any signs of disobedience against them they will be tempted to use the Udon moderation tool against you
 
-This is a major problem for people that like flashy shaders/effects as well they will think your accociated with said groups from the first reason
+This is a major problem for people that like flashy shaders/effects as well they will think your associated with said groups from the first reason
 
 
 
@@ -34,7 +34,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 # Mains
 Reimajo [ https://vrchat.com/home/user/usr_4869a530-dfbb-4b8a-bb4f-c82746c0cc97 ]
 
-^ Creator of the Udon "Ban" Pannle ^
+^ Creator of the Udon "Ban" Panel ^
 
 Tau of the sun [ https://vrchat.com/home/user/usr_0190245f-222a-4580-8ada-57ecc16b3f41 ]
 
@@ -148,7 +148,7 @@ United Moderation [
 https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514
 ]
 
-FBT Hevean [
+FBT Heaven [
 https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c
 ]
 
@@ -159,9 +159,9 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 # Proof and evidence
 
-[Proof 1 of fualsely Reporting people](https://twitter.com/K0Y0INU/status/1650607656946507778?s=20)
+[Proof 1 of falsely Reporting people](https://twitter.com/K0Y0INU/status/1650607656946507778?s=20)
 
-[Proof 2 of Fualsely Reporting people](https://twitter.com/K0Y0INU/status/1651002022504681472?s=20)
+[Proof 2 of falsely Reporting people](https://twitter.com/K0Y0INU/status/1651002022504681472?s=20)
 
 [Proof of Tau comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
 
@@ -174,4 +174,4 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 
 # a note to United moderation
-If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
+If you find this then you have no power the easiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
