@@ -137,3 +137,7 @@ https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c
 Furry Spanish [
 https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 ]
+
+
+# a note to United moderation
+If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
