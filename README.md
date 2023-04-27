@@ -88,6 +88,9 @@ DiosCarmesi [
 https://vrchat.com/home/user/usr_c870c724-77a8-49f3-b1d6-bae1c79046de
 ]
 
+Delvi [
+https://vrchat.com/home/user/usr_9f81e7ef-3e18-4826-bb83-12a090212dea
+]
 
 # Alts
 
@@ -103,6 +106,13 @@ Asahi Fumiko [
 https://vrchat.com/home/user/usr_7af60b89-9452-4854-ae3c-2cdc5115b22f
 ]
 
+Reverse Natvali [
+https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00
+]
+
+Wolfdog1981 [
+https://vrchat.com/home/user/usr_35305234-972d-4b35-81e0-7ebaa2261531
+]
 
 
 # Name Takers
@@ -125,6 +135,10 @@ https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063
 
 Zunkz [
 https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9
+]
+
+Heshie [
+https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced
 ]
 
 
