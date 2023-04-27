@@ -169,6 +169,8 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 [Proof of Dictatorship](https://twitter.com/K0Y0INU/status/1651647857819000836?s=20)
 
+[Proof of admin abuse on other users](https://twitter.com/K0Y0INU/status/1651691584579149829?s=20)
+
 
 
 # a note to United moderation
