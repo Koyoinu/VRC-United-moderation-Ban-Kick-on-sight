@@ -1,10 +1,10 @@
-# This is a list of all the furhub staff there alts and there name takers
+# This is a list of all the United Moderation staff there alts and there name takers
 
-Main: The main accounts of the official Furhub staff world moderators 
+Main: The main accounts of the official United Moderation staff world moderators 
 
 Alts: The alternate accounts of there mains
 
-Name takers: The people that like to help the Furhub staff in ratting out people
+Name takers: The people that like to help the United Moderation staff in ratting out people
 
 Worlds: Worlds under the United moderation group
 
@@ -14,7 +14,7 @@ BOS: Block on Sight
 This list was created on 4/24/2023 and was updated 4/26/2023
 
 
-the reason why this list was created is because the Furhub staff are known to not like Curtain groups of vrchat like Fatality, Shadow fox den, shaderXR and so on they are also known to stalk people they dont like in other worlds and these people are apart of a bigger group called United moderation of VR while the concept is good it is maintained by power hungry indivisuals that also break vrchats guidelines of the udon moderation tool that you can find here
+the reason why this list was created is because the United Moderation staff are known to not like Curtain groups of vrchat like Fatality, Shadow fox den, shaderXR and so on they are also known to stalk people they dont like in other worlds and these people are apart of a bigger group called United moderation of VR while the concept is good it is maintained by power hungry indivisuals that also break vrchats guidelines of the udon moderation tool that you can find here
 
 https://docs.vrchat.com/docs/udon-moderation-tool-guidelines
 
@@ -126,7 +126,7 @@ https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9
 
 # Worlds
 
-Furhub [
+United Moderation [
 https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514
 ]
 
