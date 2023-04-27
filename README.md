@@ -1,4 +1,4 @@
-This is a list of all the furhub staff there alts and there name takers
+# This is a list of all the furhub staff there alts and there name takers
 
 Main: The main accounts of the official Furhub staff world moderators 
 
