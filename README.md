@@ -153,6 +153,8 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 [Proof of guilty by association](https://twitter.com/Inflatavalii/status/1650616876991500294?s=20)
 
+[Proof of Dictatorship](https://twitter.com/K0Y0INU/status/1651647857819000836?s=20)
+
 
 
 # a note to United moderation
