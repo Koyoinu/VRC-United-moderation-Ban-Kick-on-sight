@@ -33,7 +33,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 # Mains
 Reimajo [ https://vrchat.com/home/user/usr_4869a530-dfbb-4b8a-bb4f-c82746c0cc97 ]
-[^1]: Creator of the Udon "Ban" Pannle.
+^ Creator of the Udon "Ban" Pannle ^
 
 Tau of the sun [ https://vrchat.com/home/user/usr_0190245f-222a-4580-8ada-57ecc16b3f41 ]
 
@@ -140,6 +140,18 @@ https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c
 Furry Spanish [
 https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 ]
+
+
+# Proof and evidence
+
+[Proof 1 of fualsely Reporting people](https://twitter.com/K0Y0INU/status/1650607656946507778?s=20)
+
+[Proof 2 of Fualsely Reporting people](https://twitter.com/K0Y0INU/status/1651002022504681472?s=20)
+
+[Proof of Tau comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
+
+[Proof of guilty by association](https://twitter.com/Inflatavalii/status/1650616876991500294?s=20)
+
 
 
 # a note to United moderation
