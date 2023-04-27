@@ -32,13 +32,11 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 # Mains
 
-Tau of the sun[
-https://vrchat.com/home/user/usr_0190245f-222a-4580-8ada-57ecc16b3f41
-]
+Tau of the sun
+[Taus VRC Link](https://vrchat.com/home/user/usr_0190245f-222a-4580-8ada-57ecc16b3f41)
 
-RuzuChan[
-https://vrchat.com/home/user/usr_086f84cf-beba-4927-b7ba-d7e78f21524c
-]
+RuzuChan
+[Ruzus VRC Link](https://vrchat.com/home/user/usr_086f84cf-beba-4927-b7ba-d7e78f21524c)
 
 Azuki Fumiko[
 https://vrchat.com/home/user/usr_2b79b833-1f75-42f9-9e73-ccd15bd58c4d
