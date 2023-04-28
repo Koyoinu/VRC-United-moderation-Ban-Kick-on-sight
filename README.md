@@ -153,6 +153,9 @@ Furry Spanish [
 https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 ]
 
+Furry Hideout [
+https://vrchat.com/home/world/wrld_4b341546-65ff-4607-9d38-5b7f8f405132
+]
 
 # Proof and evidence
 
@@ -172,3 +175,11 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 # a note to United moderation
 If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
+
+
+
+# Interesting facts
+
+1. if you are banned from the furhub discord you are also retroactively banned from the furry hideout discord
+
+2. United moderation have rats everywhere on vrc where they know the people they dont like hang out and they actively record them and stalk them
