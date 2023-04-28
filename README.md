@@ -182,3 +182,5 @@ If you find this then you have no power the easyiest thing to do with your power
 1. if you are banned from the furhub discord you are also retroactively banned from the furry hideout discord
 
 2. United moderation have rats everywhere on vrc where they know the people they dont like hang out and they actively record them and stalk them
+
+3. United moderation dose not go off of pure evidence they go based off of feeling meaning if they suspect you of being in a gang being a person they dont like they will put in a box in a world they have access to the pannel 
