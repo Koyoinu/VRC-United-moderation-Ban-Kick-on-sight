@@ -29,8 +29,6 @@ if you show any signs of disobediance against them they will be tempted to use t
 This is a major problem for people that like flashy shaders/effects as well they will think your accociated with said groups from the first reason
 
 
-
-
 # Mains
 Reimajo [ https://vrchat.com/home/user/usr_4869a530-dfbb-4b8a-bb4f-c82746c0cc97 ]
 
@@ -157,6 +155,7 @@ Furry Hideout [
 https://vrchat.com/home/world/wrld_4b341546-65ff-4607-9d38-5b7f8f405132
 ]
 
+
 # Proof and evidence
 
 [Proof 1 of fualsely Reporting people](https://twitter.com/K0Y0INU/status/1650607656946507778?s=20)
@@ -165,17 +164,15 @@ https://vrchat.com/home/world/wrld_4b341546-65ff-4607-9d38-5b7f8f405132
 
 [Proof of Tau comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
 
-[Proof of guilty by association](https://twitter.com/Inflatavalii/status/1650616876991500294?s=20)
+[Proof of guilty by association](https://twitter.com/K0Y0INU/status/1652036429088694279?s=20)
 
 [Proof of Dictatorship](https://twitter.com/K0Y0INU/status/1651647857819000836?s=20)
 
 [Proof of admin abuse on other users](https://twitter.com/K0Y0INU/status/1651691584579149829?s=20)
 
 
-
 # a note to United moderation
 If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
-
 
 
 # Interesting facts
