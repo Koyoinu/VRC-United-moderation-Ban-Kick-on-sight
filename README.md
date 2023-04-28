@@ -110,9 +110,6 @@ Reverse Natvali [
 https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00
 ]
 
-Wolfdog1981 [
-https://vrchat.com/home/user/usr_35305234-972d-4b35-81e0-7ebaa2261531
-]
 
 
 # Name Takers
@@ -144,7 +141,7 @@ https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced
 
 # Worlds
 
-United Moderation [
+Furhub [
 https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514
 ]
 
