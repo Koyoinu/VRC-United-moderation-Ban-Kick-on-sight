@@ -11,7 +11,7 @@ Worlds: Worlds under the United moderation group
 BOS: Block on Sight
 
 
-This list was created on 4/24/2023 and was updated 4/26/2023
+This list was created on 4/24/2023 and was updated 4/28/2023
 
 
 the reason why this list was created is because the United Moderation staff are known to not like Curtain groups of vrchat like Fatality, Shadow fox den, shaderXR and so on they are also known to stalk people they dont like in other worlds and these people are apart of a bigger group called United moderation of VR while the concept is good it is maintained by power hungry indivisuals that also break vrchats guidelines of the udon moderation tool that you can find here
