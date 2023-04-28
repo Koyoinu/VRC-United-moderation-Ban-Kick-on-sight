@@ -193,6 +193,8 @@ If you find this then you have no power the easyiest thing to do with your power
 
 3. United moderation dose not go off of pure evidence they go based off of feeling meaning if they suspect you of being in a gang being a person they dont like they will put in a box in a world they have access to the pannel 
 
+4. In FBT the admins and mods hide outside the map 
+
 # United Moderation Links
 
 [VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
