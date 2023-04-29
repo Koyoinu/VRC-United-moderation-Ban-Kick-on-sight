@@ -207,4 +207,4 @@ If you find this then you have no power the easyiest thing to do with your power
 
 [VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
 
-[United Moderation Discord](https://discord.gg/MHZpz4jhzk)
+[United Moderation Discord](https://discord.gg/MHZpz4jhzk) <- Dead link
