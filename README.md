@@ -108,6 +108,10 @@ Reverse Natvali [
 https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00
 ]
 
+NUKA 26de [
+https://vrchat.com/home/user/usr_ac0f8bdd-46fc-4e86-8779-748e56b626de
+]
+
 
 
 # Name Takers
