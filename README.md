@@ -192,7 +192,7 @@ If you find this then you have no power the easyiest thing to do with your power
 
 # Interesting facts
 
-1. if you are banned from the furhub discord you are also retroactively banned from the furry hideout discord <- under investigation
+1. if you are banned from the furhub discord you are also retroactively banned from the furry hideout discord <- under investigation (i believe that united moderation has rats as mods and admins in the server trying to overly moderate other servers)
 
 2. United moderation have rats everywhere on vrc where they know the people they dont like hang out and they actively record them and stalk them
 
