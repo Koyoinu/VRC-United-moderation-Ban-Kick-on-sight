@@ -167,9 +167,6 @@ Furry Spanish [
 https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 ]
 
-Furry Hideout [
-https://vrchat.com/home/world/wrld_4b341546-65ff-4607-9d38-5b7f8f405132
-]
 
 
 # Proof and evidence
