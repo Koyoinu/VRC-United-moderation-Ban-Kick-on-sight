@@ -214,4 +214,4 @@ If you find this then you have no power the easyiest thing to do with your power
 a big thing is happening with furhub with the panle also Tau of the sun says he can see all worlds now witch is strange could this be possible client use by UM witch is i will remind you against VRchat TOS along with a massive Database that UM has or is making stay tuned to find out more News on UM and the active fight against Curated Moderation of VRchat
 
 
-# W̴̹͐ȩ̴̾ ̴̼̓h̵̭̒a̴̮͊v̶̗͊e̶̬̎ ̸͉̀Ė̴͙y̶̼͘e̶̱̿s̶̪̕ ̵̳͊ȅ̴̲v̸̱̈́ḛ̸͝r̷̡͘ÿ̶̪w̷̧͐h̸̟́ë̶̩́r̷̲͗ȩ̵̚
+# We have eyes Everywhere and we only want Freedom in vrchat back
