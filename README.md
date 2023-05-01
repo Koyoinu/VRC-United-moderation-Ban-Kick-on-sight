@@ -202,6 +202,8 @@ If you find this then you have no power the easyiest thing to do with your power
 
 5. Heshie one of UMs Freinds possible staff memebers uses crashers and UM turns a blind eye and lets it happen
 
+6. you cant block UM staff but they can block you
+
 # United Moderation Links
 
 [VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
