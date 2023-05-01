@@ -192,16 +192,26 @@ If you find this then you have no power the easyiest thing to do with your power
 
 # Interesting facts
 
-1. if you are banned from the furhub discord you are also retroactively banned from the furry hideout discord <- under investigation (i believe that united moderation has rats as mods and admins in the server trying to overly moderate other servers)
+1. United moderation have rats everywhere on vrc where they know the people they dont like hang out and they actively record them and stalk them
 
-2. United moderation have rats everywhere on vrc where they know the people they dont like hang out and they actively record them and stalk them
+2. United moderation dose not go off of pure evidence they go based off of feeling meaning if they suspect you of being in a gang being a person they dont like they will put in a box in a world they have access to the pannel 
 
-3. United moderation dose not go off of pure evidence they go based off of feeling meaning if they suspect you of being in a gang being a person they dont like they will put in a box in a world they have access to the pannel 
+3. In FBT the admins and mods hide outside the map 
 
-4. In FBT the admins and mods hide outside the map 
+4. UM moderates places where there not welcome
+
+5. Heshie one of UMs Freinds possible staff memebers uses crashers and UM turns a blind eye and lets it happen
 
 # United Moderation Links
 
 [VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
 
 [United Moderation Discord](https://discord.gg/MHZpz4jhzk) <- Dead link
+
+# News
+
+4/30/2023 9:25 PM CST
+a big thing is happening with furhub with the panle also Tau of the sun says he can see all worlds now witch is strange could this be possible client use by UM witch is i will remind you against VRchat TOS along with a massive Database that UM has or is making stay tuned to find out more News on UM and the active fight against Curated Moderation of VRchat
+
+
+# W̴̹͐ȩ̴̾ ̴̼̓h̵̭̒a̴̮͊v̶̗͊e̶̬̎ ̸͉̀Ė̴͙y̶̼͘e̶̱̿s̶̪̕ ̵̳͊ȅ̴̲v̸̱̈́ḛ̸͝r̷̡͘ÿ̶̪w̷̧͐h̸̟́ë̶̩́r̷̲͗ȩ̵̚
