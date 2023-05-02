@@ -185,6 +185,9 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 [VIDEO VRC please stop united moderation](https://youtu.be/KXPu-dLo49U)
 
+"Guidelines are not Rules"
+![image](https://user-images.githubusercontent.com/85961107/235573685-364d030e-e6bb-409c-90d9-99821b585869.png)
+
 
 # a note to United moderation
 If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
