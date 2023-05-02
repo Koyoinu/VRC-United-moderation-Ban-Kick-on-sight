@@ -176,7 +176,9 @@ https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
 
 [Proof 2 of Fualsely Reporting people](https://twitter.com/K0Y0INU/status/1651002022504681472?s=20)
 
-[Proof of Tau comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
+[Proof 1 of UM comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
+
+[Proof 2 of UM comparing us to nazis](https://twitter.com/K0Y0INU/status/1653498847597940736?s=20)
 
 [Proof of guilty by association](https://twitter.com/K0Y0INU/status/1652036429088694279?s=20)
 
