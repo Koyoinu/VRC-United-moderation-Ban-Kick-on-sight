@@ -1,4 +1,4 @@
-# **This is a list of all the United Moderation staff there alts and there name takers**
+# **This is a list of all the United Moderation staff there alts and there name takers**4
 
 - Main: The main accounts of the official United Moderation staff world moderators 
 
@@ -191,7 +191,7 @@ If you find this then you have no power the easyiest thing to do with your power
 
 5. Heshie one of UMs Freinds possible staff memebers uses crashers and UM turns a blind eye and lets it happen
 
-6. you cant block UM staff but they can block you
+6. you cant block UM staff but they can block you Meaning there histerically hypocritical in there own rules
 
 7. UM is known for stalking mass reporting people they dont like this is why this list was made so that others can block them cause they really have no power if you block them its quite funny
 
