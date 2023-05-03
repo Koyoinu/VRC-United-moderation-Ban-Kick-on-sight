@@ -10,9 +10,7 @@
 
 - BOS: Block on Sight
 
-
 This list was created on 4/24/2023 and was updated 4/28/2023
-
 
 the reason why this list was created is because the United Moderation staff are known to not like Curtain groups of vrchat like Fatality, Shadow fox den, shaderXR and so on they are also known to stalk people they dont like in other worlds and these people are apart of a bigger group called United moderation of VR while the concept is good it is maintained by power hungry indivisuals that also break vrchats guidelines of the udon moderation tool that you can find here
 
@@ -31,7 +29,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 ---
 
-# Mains
+# **Mains**
 - ### The main accountsof all United moderation Staff 
 ---
 ## Reimajo
@@ -95,7 +93,8 @@ Likes to block people randomly in excuse of saftey reasons
 ## Delvi 
 - [VRC Link](https://vrchat.com/home/user/usr_9f81e7ef-3e18-4826-bb83-12a090212dea)
 ---
-# Alts
+
+# **Alts**
 ## R4ndomEncount3r/solist
 - [VR Link](https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72)
 ---
@@ -112,86 +111,75 @@ Florians Alt
 - [VRC Link](https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00)
 ---
 
-# Name Takers
+# **Name Takers**
 ## Nekon118 
 - [VRC Link](https://vrchat.com/home/user/usr_6a8ed357-e3c5-41b2-bd09-af163dcdab29)
 ---
-Graywolf89 [
-https://vrchat.com/home/user/usr_bbc5124e-6fcf-460f-9716-960754ec9de3
-]
+## Graywolf89 
+- [VRC Link](https://vrchat.com/home/user/usr_bbc5124e-6fcf-460f-9716-960754ec9de3)
+---
+## Bloodmist 
+- [VRC Link](https://vrchat.com/home/user/usr_4afcd1c8-7510-4985-8434-7d99cf12e2fa)
+---
+## Ṁonsterwolḟ 
+- [VRC Link](https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063)
+---
+Zunkz 
+- [VRC Link](https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9)
+- [Twitter Link](https://twitter.com/ImZunkz)
+- [Twitter Alt Link](https://twitter.com/ZunkzAlt)
+---
+## Heshie 
+- [VRc Link](https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced)
+---
+## Tehrasha
+- [VRC Link](https://vrchat.com/home/user/usr_fca4d053-f6a0-4ba6-a00d-fb6c1f6c048a)
+---
+## AmberSnowSky 
+- [VRC Link](https://vrchat.com/home/user/usr_6f9370e6-921f-42ba-bf75-e0921b3c3c31)
+---
+## Lovely the Wolf 
+- [VRC Link](https://vrchat.com/home/user/usr_81bce86d-2902-4b87-8782-a376c55c5e38)
+---
 
-Bloodmist [
-https://vrchat.com/home/user/usr_4afcd1c8-7510-4985-8434-7d99cf12e2fa
-]
+# **Worlds**
+## Furhub 
+- [VRC Link](https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514)
+---
+## FBT Hevean 
+- [VRC Link](https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c)
+---
+## Furry Spanish 
+- [VRC Link](https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b)
+---
 
-Ṁonsterwolḟ [
-https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063
-]
+# **Proof and evidence**
 
-Zunkz [
-https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9
-]
+- [Proof 1 of fualsely Reporting people](https://twitter.com/K0Y0INU/status/1650607656946507778?s=20)
 
-Heshie [
-https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced
-]
+- [Proof 2 of Fualsely Reporting people](https://twitter.com/K0Y0INU/status/1651002022504681472?s=20)
 
-Tehrasha [
-https://vrchat.com/home/user/usr_fca4d053-f6a0-4ba6-a00d-fb6c1f6c048a
-]
+- [Proof 1 of UM comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
 
-AmberSnowSky [
-https://vrchat.com/home/user/usr_6f9370e6-921f-42ba-bf75-e0921b3c3c31
-]
+- [Proof 2 of UM comparing us to nazis](https://twitter.com/K0Y0INU/status/1653498847597940736?s=20)
 
-Lovely the Wolf [
-https://vrchat.com/home/user/usr_81bce86d-2902-4b87-8782-a376c55c5e38
-]
+- [Proof of guilty by association](https://twitter.com/K0Y0INU/status/1652036429088694279?s=20)
 
+- [Proof of Dictatorship](https://twitter.com/K0Y0INU/status/1651647857819000836?s=20)
 
-# Worlds
+- [Proof of admin abuse on other users](https://twitter.com/K0Y0INU/status/1651691584579149829?s=20)
 
-Furhub [
-https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514
-]
+- [VIDEO VRC please stop united moderation](https://youtu.be/KXPu-dLo49U)
 
-FBT Hevean [
-https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c
-]
-
-Furry Spanish [
-https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b
-]
-
-
-
-# Proof and evidence
-
-[Proof 1 of fualsely Reporting people](https://twitter.com/K0Y0INU/status/1650607656946507778?s=20)
-
-[Proof 2 of Fualsely Reporting people](https://twitter.com/K0Y0INU/status/1651002022504681472?s=20)
-
-[Proof 1 of UM comparing people online to the KKK and Nazis](https://twitter.com/K0Y0INU/status/1650603288918630403?s=20)
-
-[Proof 2 of UM comparing us to nazis](https://twitter.com/K0Y0INU/status/1653498847597940736?s=20)
-
-[Proof of guilty by association](https://twitter.com/K0Y0INU/status/1652036429088694279?s=20)
-
-[Proof of Dictatorship](https://twitter.com/K0Y0INU/status/1651647857819000836?s=20)
-
-[Proof of admin abuse on other users](https://twitter.com/K0Y0INU/status/1651691584579149829?s=20)
-
-[VIDEO VRC please stop united moderation](https://youtu.be/KXPu-dLo49U)
-
-"Guidelines are not Rules"
+# **"Guidelines are not Rules"**
 ![image](https://user-images.githubusercontent.com/85961107/235573685-364d030e-e6bb-409c-90d9-99821b585869.png)
 
 
-# a note to United moderation
+# **a note to United moderation**
 If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
 
 
-# Interesting facts
+# **Interesting facts**
 
 1. United moderation have rats everywhere on vrc where they know the people they dont like hang out and they actively record them and stalk them
 
@@ -207,20 +195,20 @@ If you find this then you have no power the easyiest thing to do with your power
 
 7. UM is known for stalking mass reporting people they dont like this is why this list was made so that others can block them cause they really have no power if you block them its quite funny
 
-# United Moderation Links
+# **United Moderation Links**
 
 [VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
 
 [United Moderation Discord](https://discord.gg/MHZpz4jhzk) <- Dead link
 
-# News
+# **News/Updates**
 
-4/30/2023 9:25 PM CST
-a big thing is happening with furhub with the panle also Tau of the sun says he can see all worlds now witch is strange could this be possible client use by UM witch is i will remind you against VRchat TOS along with a massive Database that UM has or is making stay tuned to find out more News on UM and the active fight against Curated Moderation of VRchat
+## 4/30/2023 9:25 PM CST
+- a big thing is happening with furhub with the panle also Tau of the sun says he can see all worlds now witch is strange could this be possible client use by UM witch is i will remind you against VRchat TOS along with a massive Database that UM has or is making stay tuned to find out more News on UM and the active fight against Curated Moderation of VRchat
+---
+## 5/1/2023 2:35 PM CST
+- According to Tau of the sun VRchat will be taking down The udon moderation guidelines but we all know its fualse information so that they can justify them getting away with stuff since vrchat has the guideliones link unlisted and you can only have access to it if you have a link its quite funny to see lies being spread to justify there actions they already turn a blind eye to crashers will they out right use crashers now? who knows
 
-5/1/2023 2:35 PM CST
-According to Tau of the sun VRchat will be taking down The udon moderation guidelines but we all know its fualse information so that they can justify them getting away with stuff since vrchat has the guideliones link unlisted and you can only have access to it if you have a link its quite funny to see lies being spread to justify there actions they already turn a blind eye to crashers will they out right use crashers now? who knows
+- Tau of the sun has reportedly said they can see all worlds now that is what they said in my mind i think he ment to say all instances even if they are private so is this him admiting to client use witch is breaking vrchats TOS i did cover this in yesterdays news i just wanted to break it down into something of what it could mean
 
-Tau of the sun has reportedly said they can see all worlds now that is what they said in my mind i think he ment to say all instances even if they are private so is this him admiting to client use witch is breaking vrchats TOS i did cover this in yesterdays news i just wanted to break it down into something of what it could mean
-
-# We have eyes Everywhere and we only want Freedom in vrchat back
+# **Maintained by Koyoinu**
