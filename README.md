@@ -1,4 +1,4 @@
-# This is a list of all the United Moderation staff there alts and there name takers
+# **This is a list of all the United Moderation staff there alts and there name takers**
 
 - Main: The main accounts of the official United Moderation staff world moderators 
 
