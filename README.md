@@ -210,5 +210,8 @@ If you find this then you have no power the easyiest thing to do with your power
 - According to Tau of the sun VRchat will be taking down The udon moderation guidelines but we all know its fualse information so that they can justify them getting away with stuff since vrchat has the guideliones link unlisted and you can only have access to it if you have a link its quite funny to see lies being spread to justify there actions they already turn a blind eye to crashers will they out right use crashers now? who knows
 
 - Tau of the sun has reportedly said they can see all worlds now that is what they said in my mind i think he ment to say all instances even if they are private so is this him admiting to client use witch is breaking vrchats TOS i did cover this in yesterdays news i just wanted to break it down into something of what it could mean
+---
+## 5/3/2023 4:35 PM
+- The Readme got a massive overhual
 
 # **Maintained by Koyoinu**
