@@ -32,7 +32,8 @@ This is a major problem for people that like flashy shaders/effects as well they
 ---
 
 # Mains
-The main accountsof all United moderation Staff 
+- ### The main accountsof all United moderation Staff 
+---
 ## Reimajo
 Creator of the Udon "Ban" Pannle
 - [VRC Link](https://vrchat.com/home/user/usr_4869a530-dfbb-4b8a-bb4f-c82746c0cc97) 
@@ -95,35 +96,26 @@ Likes to block people randomly in excuse of saftey reasons
 - [VRC Link](https://vrchat.com/home/user/usr_9f81e7ef-3e18-4826-bb83-12a090212dea)
 ---
 # Alts
-
-R4ndomEncount3r [
-https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72
-]
-
-TopEGirl [
-https://vrchat.com/home/user/usr_e3da05a3-6b07-452c-8c7a-5c2454eb0a32
-]
-
-Asahi Fumiko [
-https://vrchat.com/home/user/usr_7af60b89-9452-4854-ae3c-2cdc5115b22f
-]
-
-Reverse Natvali [
-https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00
-]
-
-NUKA 26de [
-https://vrchat.com/home/user/usr_ac0f8bdd-46fc-4e86-8779-748e56b626de
-]
-
-
+## R4ndomEncount3r/solist
+- [VR Link](https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72)
+---
+## TopEGirl 
+Azukis Alt
+- [VRC Link](https://vrchat.com/home/user/usr_e3da05a3-6b07-452c-8c7a-5c2454eb0a32)
+---
+## Asahi Fumiko 
+Azukis 2ed alt
+- [VRC Link](https://vrchat.com/home/user/usr_7af60b89-9452-4854-ae3c-2cdc5115b22f)
+---
+## Reverse Natvali 
+Florians Alt
+- [VRC Link](https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00)
+---
 
 # Name Takers
-
-Nekon118 [
-https://vrchat.com/home/user/usr_6a8ed357-e3c5-41b2-bd09-af163dcdab29
-]
-
+## Nekon118 
+- [VRC Link](https://vrchat.com/home/user/usr_6a8ed357-e3c5-41b2-bd09-af163dcdab29)
+---
 Graywolf89 [
 https://vrchat.com/home/user/usr_bbc5124e-6fcf-460f-9716-960754ec9de3
 ]
