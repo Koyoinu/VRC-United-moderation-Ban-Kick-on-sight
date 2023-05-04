@@ -222,5 +222,9 @@ This is a major problem for people that like flashy shaders/effects as well they
 ## 5/3/2023 4:35 PM
 - The Readme got a massive overhual
 
+# **Disclaimers**
+- every bit of information gatherd is public information as these people have named there witter accounts the same as there Main vrchat accounts that is how i got all this info **i do not plan to Dox the people in this document**
+
 # **Maintained by Koyoinu**
 - ## if you want your name off the list quit this whole your a real moderator bullshit and let vrchat handle moderation like it should always be
+
