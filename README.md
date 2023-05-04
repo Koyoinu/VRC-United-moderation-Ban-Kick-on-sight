@@ -203,9 +203,9 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 # **United Moderation Links**
 
-[VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
+- [VRC Group](https://vrchat.com/home/group/grp_2bd10311-6e2f-47dc-aa7b-0fb1826ad7fa)
 
-[United Moderation Discord](https://discord.gg/MHZpz4jhzk) <- Dead link
+- [United Moderation Discord](https://discord.gg/MHZpz4jhzk) <- Dead link
 
 # **News/Updates**
 
