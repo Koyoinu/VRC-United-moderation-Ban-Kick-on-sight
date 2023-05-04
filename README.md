@@ -98,7 +98,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 - ### The Alternative Accounts used by United Moderation
     ---
     ## R4ndomEncount3r/solist
-    - [VR Link](https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72)
+    - [VRC Link](https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72)
     ---
     ## TopEGirl 
     Azukis Alt
@@ -134,7 +134,7 @@ This is a major problem for people that like flashy shaders/effects as well they
     - [Twitter Alt Link](https://twitter.com/ZunkzAlt)
     ---
     ## Heshie 
-    - [VRc Link](https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced)
+    - [VRC Link](https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced)
     ---
     ## Tehrasha
     - [VRC Link](https://vrchat.com/home/user/usr_fca4d053-f6a0-4ba6-a00d-fb6c1f6c048a)
@@ -182,7 +182,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 
 # **a note to United moderation**
-If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
+- If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
 
 
 # **Interesting facts**
