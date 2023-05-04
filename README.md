@@ -221,3 +221,4 @@ This is a major problem for people that like flashy shaders/effects as well they
 - The Readme got a massive overhual
 
 # **Maintained by Koyoinu**
+- ## if you want your name off the list quit this whole your a real moderator bullshit and let vrchat handle moderation like it should always be
