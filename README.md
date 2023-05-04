@@ -2,7 +2,7 @@
 
 - Main: The main accounts of the official United Moderation staff world moderators 
 
-- Alts: The alternate accounts of there mains
+- Alts: The Alternative Accounts used by United Moderation
 
 - Name takers: The people that like to help the United Moderation staff in ratting out people
 
@@ -30,128 +30,134 @@ This is a major problem for people that like flashy shaders/effects as well they
 ---
 
 # **Mains**
-- ### The main accountsof all United moderation Staff 
----
-## Reimajo
-Creator of the Udon "Ban" Pannle
-- [VRC Link](https://vrchat.com/home/user/usr_4869a530-dfbb-4b8a-bb4f-c82746c0cc97) 
-- [Twitter link](https://twitter.com/ReimajoChan)
----
-## Tau of the sun
-Head admin of Furhub
-- [VRC Link](https://vrchat.com/home/user/usr_0190245f-222a-4580-8ada-57ecc16b3f41)
-- [Twitter Link](https://twitter.com/Tau_of_the_sun)
----
-## RuzuChan  
-- [VRC Link](https://vrchat.com/home/user/usr_086f84cf-beba-4927-b7ba-d7e78f21524c) 
----
-## Azuki Fumiko
-Creator Of united moderation || Owner of FBTH
-- [VRC Link](https://vrchat.com/home/user/usr_2b79b833-1f75-42f9-9e73-ccd15bd58c4d)
-- [Twitter Link](https://twitter.com/AzukiFumiko)
----
-## Kwipper 
-- [VRC Link](https://vrchat.com/home/user/usr_be3bf9bc-c15b-4188-b0c1-708b9fe438ef)
-- [Twitter link](https://twitter.com/KwipperUrsus)
----
-## Xavenn 
-- [VRC Link](https://vrchat.com/home/user/usr_b6bb670f-6da6-4773-abe8-c4ed6ae09133)
----
-## Skullsalsa 
-- [VRC Link](https://vrchat.com/home/user/usr_d97165b3-94d5-4070-a144-28e22cf7a7fd)
----
-## FlorianGrille
-Likes to block people randomly in excuse of saftey reasons 
-- [VRC Link](https://vrchat.com/home/user/usr_c5ab7705-2ba5-49ef-b770-bc312b714294)
-- [Twitter Link](https://twitter.com/FlorianGrille)
----
-## Fawcks 
-- [VRC Link](https://vrchat.com/home/user/usr_1e101416-1d88-4ec3-add4-9d56093f5924)
-- [Twitter Link](https://twitter.com/Inflatavalii)
----
-## deadpall 
-- [VRC Link](https://vrchat.com/home/user/usr_ceedb35a-94e2-4283-9464-4db032378890)
-- [Twitter Link](https://twitter.com/deadpall_vrc)
----
-## NegativeTM
-- [VRC Link](https://vrchat.com/home/user/usr_8a18f295-1c6e-4a4a-80f4-e94391285f93)
-- [Twitter Link](https://twitter.com/Negative_T_M_)
----
-## neptuplonian 
-- [VRC Link](https://vrchat.com/home/user/usr_11615d3f-1c5f-42be-9aae-5880544a311e)
-- [Twitter Link](https://twitter.com/t3hwinz)
----
-## Foxrin
-- [VRC Link](https://vrchat.com/home/user/usr_dd4fb334-a6c7-46b1-a0bf-43e37b60cf89)
----
-## Enexius 
-- [VRC Link](https://vrchat.com/home/user/usr_3ca4fbba-5f8f-4bb7-919e-e05947c9858a)
----
-## DiosCarmesi 
-- [VRC Link](https://vrchat.com/home/user/usr_c870c724-77a8-49f3-b1d6-bae1c79046de)
----
-## Delvi 
-- [VRC Link](https://vrchat.com/home/user/usr_9f81e7ef-3e18-4826-bb83-12a090212dea)
----
+- ### The main accounts of all United moderation Staff
+    ---
+    ## Reimajo
+    Creator of the Udon "Ban" Pannle
+    - [VRC Link](https://vrchat.com/home/user/usr_4869a530-dfbb-4b8a-bb4f-c82746c0cc97) 
+    - [Twitter link](https://twitter.com/ReimajoChan)
+    ---
+    ## Tau of the sun
+    Head admin of Furhub
+    - [VRC Link](https://vrchat.com/home/user/usr_0190245f-222a-4580-8ada-57ecc16b3f41)
+    - [Twitter Link](https://twitter.com/Tau_of_the_sun)
+    ---
+    ## RuzuChan  
+    - [VRC Link](https://vrchat.com/home/user/usr_086f84cf-beba-4927-b7ba-d7e78f21524c) 
+    ---
+    ## Azuki Fumiko
+    Creator Of united moderation || Owner of FBTH
+    - [VRC Link](https://vrchat.com/home/user/usr_2b79b833-1f75-42f9-9e73-ccd15bd58c4d)
+    - [Twitter Link](https://twitter.com/AzukiFumiko)
+    ---
+    ## Kwipper 
+    - [VRC Link](https://vrchat.com/home/user/usr_be3bf9bc-c15b-4188-b0c1-708b9fe438ef)
+    - [Twitter link](https://twitter.com/KwipperUrsus)
+    ---
+    ## Xavenn 
+    - [VRC Link](https://vrchat.com/home/user/usr_b6bb670f-6da6-4773-abe8-c4ed6ae09133)
+    ---
+    ## Skullsalsa 
+    - [VRC Link](https://vrchat.com/home/user/usr_d97165b3-94d5-4070-a144-28e22cf7a7fd)
+    ---
+    ## FlorianGrille
+    Likes to block people randomly in excuse of saftey reasons 
+    - [VRC Link](https://vrchat.com/home/user/usr_c5ab7705-2ba5-49ef-b770-bc312b714294)
+    - [Twitter Link](https://twitter.com/FlorianGrille)
+    ---
+    ## Fawcks 
+    - [VRC Link](https://vrchat.com/home/user/usr_1e101416-1d88-4ec3-add4-9d56093f5924)
+    - [Twitter Link](https://twitter.com/Inflatavalii)
+    ---
+    ## deadpall 
+    - [VRC Link](https://vrchat.com/home/user/usr_ceedb35a-94e2-4283-9464-4db032378890)
+    - [Twitter Link](https://twitter.com/deadpall_vrc)
+    ---
+    ## NegativeTM
+    - [VRC Link](https://vrchat.com/home/user/usr_8a18f295-1c6e-4a4a-80f4-e94391285f93)
+    - [Twitter Link](https://twitter.com/Negative_T_M_)
+    ---
+    ## neptuplonian 
+    - [VRC Link](https://vrchat.com/home/user/usr_11615d3f-1c5f-42be-9aae-5880544a311e)
+    - [Twitter Link](https://twitter.com/t3hwinz)
+    ---
+    ## Foxrin
+    - [VRC Link](https://vrchat.com/home/user/usr_dd4fb334-a6c7-46b1-a0bf-43e37b60cf89)
+    ---
+    ## Enexius 
+    - [VRC Link](https://vrchat.com/home/user/usr_3ca4fbba-5f8f-4bb7-919e-e05947c9858a)
+    ---
+    ## DiosCarmesi 
+    - [VRC Link](https://vrchat.com/home/user/usr_c870c724-77a8-49f3-b1d6-bae1c79046de)
+    ---
+    ## Delvi 
+    - [VRC Link](https://vrchat.com/home/user/usr_9f81e7ef-3e18-4826-bb83-12a090212dea)
+    ---
 
 # **Alts**
-## R4ndomEncount3r/solist
-- [VR Link](https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72)
----
-## TopEGirl 
-Azukis Alt
-- [VRC Link](https://vrchat.com/home/user/usr_e3da05a3-6b07-452c-8c7a-5c2454eb0a32)
----
-## Asahi Fumiko 
-Azukis 2ed alt
-- [VRC Link](https://vrchat.com/home/user/usr_7af60b89-9452-4854-ae3c-2cdc5115b22f)
----
-## Reverse Natvali 
-Florians Alt
-- [VRC Link](https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00)
----
+- ### The Alternative Accounts used by United Moderation
+    ---
+    ## R4ndomEncount3r/solist
+    - [VR Link](https://vrchat.com/home/user/usr_f5de9483-ee8e-418f-b52a-c190a5c63c72)
+    ---
+    ## TopEGirl 
+    Azukis Alt
+    - [VRC Link](https://vrchat.com/home/user/usr_e3da05a3-6b07-452c-8c7a-5c2454eb0a32)
+    ---
+    ## Asahi Fumiko 
+    Azukis 2ed alt
+    - [VRC Link](https://vrchat.com/home/user/usr_7af60b89-9452-4854-ae3c-2cdc5115b22f)
+    ---
+    ## Reverse Natvali 
+    Florians Alt
+    - [VRC Link](https://vrchat.com/home/user/usr_320ec42a-20d6-4544-b0be-6d7967fc1f00)
+    ---
 
 # **Name Takers**
-## Nekon118 
-- [VRC Link](https://vrchat.com/home/user/usr_6a8ed357-e3c5-41b2-bd09-af163dcdab29)
----
-## Graywolf89 
-- [VRC Link](https://vrchat.com/home/user/usr_bbc5124e-6fcf-460f-9716-960754ec9de3)
----
-## Bloodmist 
-- [VRC Link](https://vrchat.com/home/user/usr_4afcd1c8-7510-4985-8434-7d99cf12e2fa)
----
-## Ṁonsterwolḟ 
-- [VRC Link](https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063)
----
-Zunkz 
-- [VRC Link](https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9)
-- [Twitter Link](https://twitter.com/ImZunkz)
-- [Twitter Alt Link](https://twitter.com/ZunkzAlt)
----
-## Heshie 
-- [VRc Link](https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced)
----
-## Tehrasha
-- [VRC Link](https://vrchat.com/home/user/usr_fca4d053-f6a0-4ba6-a00d-fb6c1f6c048a)
----
-## AmberSnowSky 
-- [VRC Link](https://vrchat.com/home/user/usr_6f9370e6-921f-42ba-bf75-e0921b3c3c31)
----
-## Lovely the Wolf 
-- [VRC Link](https://vrchat.com/home/user/usr_81bce86d-2902-4b87-8782-a376c55c5e38)
----
+- ### The people that like to help the United Moderation staff in ratting out people
+    ---
+    ## Nekon118 
+    - [VRC Link](https://vrchat.com/home/user/usr_6a8ed357-e3c5-41b2-bd09-af163dcdab29)
+    ---
+    ## Graywolf89 
+    - [VRC Link](https://vrchat.com/home/user/usr_bbc5124e-6fcf-460f-9716-960754ec9de3)
+    ---
+    ## Bloodmist 
+    - [VRC Link](https://vrchat.com/home/user/usr_4afcd1c8-7510-4985-8434-7d99cf12e2fa)
+    ---
+    ## Ṁonsterwolḟ 
+    - [VRC Link](https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063)
+    ---
+    Zunkz 
+    - [VRC Link](https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9)
+    - [Twitter Link](https://twitter.com/ImZunkz)
+    - [Twitter Alt Link](https://twitter.com/ZunkzAlt)
+    ---
+    ## Heshie 
+    - [VRc Link](https://vrchat.com/home/user/usr_13901801-dde6-4424-a4f4-d268ae6aaced)
+    ---
+    ## Tehrasha
+    - [VRC Link](https://vrchat.com/home/user/usr_fca4d053-f6a0-4ba6-a00d-fb6c1f6c048a)
+    ---
+    ## AmberSnowSky 
+    - [VRC Link](https://vrchat.com/home/user/usr_6f9370e6-921f-42ba-bf75-e0921b3c3c31)
+    ---
+    ## Lovely the Wolf 
+    - [VRC Link](https://vrchat.com/home/user/usr_81bce86d-2902-4b87-8782-a376c55c5e38)
+    ---
 
 # **Worlds**
-## Furhub 
-- [VRC Link](https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514)
----
-## FBT Hevean 
-- [VRC Link](https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c)
----
-## Furry Spanish 
-- [VRC Link](https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b)
----
+- ### Worlds under the United moderation group
+    ---
+    ## Furhub 
+    - [VRC Link](https://vrchat.com/home/world/wrld_65ce4a4b-f66f-4844-adfe-072663394514)
+    ---
+    ## FBT Hevean 
+    - [VRC Link](https://vrchat.com/home/world/wrld_d319c58a-dcec-47de-b5fc-21200116462c)
+    ---
+    ## Furry Spanish 
+    - [VRC Link](https://vrchat.com/home/world/wrld_1e719674-9a99-4a49-a2b6-edc93e22dc5b)
+    ---
 
 # **Proof and evidence**
 
