@@ -128,7 +128,7 @@ This is a major problem for people that like flashy shaders/effects as well they
     ## Ṁonsterwolḟ 
     - [VRC Link](https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063)
     ---
-    Zunkz 
+    ## Zunkz 
     - [VRC Link](https://vrchat.com/home/user/usr_ca1ebb6e-bd9f-47bb-a4b9-92e816c680e9)
     - [Twitter Link](https://twitter.com/ImZunkz)
     - [Twitter Alt Link](https://twitter.com/ZunkzAlt)
