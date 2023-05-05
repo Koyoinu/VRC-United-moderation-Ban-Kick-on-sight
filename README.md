@@ -63,6 +63,7 @@ This is a major problem for people that like flashy shaders/effects as well they
     ---
     ## Skullsalsa 
     - [VRC Link](https://vrchat.com/home/user/usr_d97165b3-94d5-4070-a144-28e22cf7a7fd)
+    - [Twitter link](https://twitter.com/skullwasa)
     ---
     ## FlorianGrille
     Likes to block people randomly in excuse of saftey reasons 
