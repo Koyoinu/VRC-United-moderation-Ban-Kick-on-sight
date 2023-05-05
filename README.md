@@ -223,9 +223,12 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 - Tau of the sun has reportedly said they can see all worlds now that is what they said in my mind i think he ment to say all instances even if they are private so is this him admiting to client use witch is breaking vrchats TOS i did cover this in yesterdays news i just wanted to break it down into something of what it could mean
 ---
-## 5/3/2023 4:35 PM
+## 5/3/2023 4:35 PM CST
 - The Readme got a massive overhual
 
+## 5/4/2023 7:00 PM CST
+- The Udon moderation guidelines have not been Deleted Its cause VRchats knows if they did that it would create more Anarchy and someone attempted to report this Document to github for private information so i added more disclaimers for people as everything im doing is just looking stuff up and taking informatuion that i gather from my friends I made this document so people can block these people so that these people do not have any power to harass others 
+---
 # **Disclaimers**
 - every bit of information gatherd is public information as these people have named there Twitter accounts the same as there Main vrchat accounts that is how i got all this info **i do not plan to Dox the people in this document**
 
