@@ -234,7 +234,20 @@ This is a major problem for people that like flashy shaders/effects as well they
 - every bit of information gatherd is public information as these people have named there Twitter accounts the same as there Main vrchat accounts or they have it linked to there VRC profile that is how i got all this info **i do not plan to Dox the people in this document**
 
 - Please do not harass anyone on this list just block them on VRchat on twitter what ever
-
+---
+# **How to block through the Website/In-Game**
+- ## Through the Website
+    1. Log in at the [VRchat Website](https://hello.vrchat.com/)
+    2. Click on the VRC link in Mains, Alts and Name takers
+    3. Hit the block option beside there bio
+    4. (if you are in game) Restart your game for the blocks to take effect
+---
+- ## In game
+    1. open your Quick menu
+    2. Go to your social Menu
+    3. copy the Usernames one by one
+    4. Moderate user and block user (do not report user if vrchat asks if you want to dont stoop down to there level)
+---
 # **Maintained by Koyoinu**
 - ## if you want your name off the list quit this whole your a real moderator bullshit and let vrchat handle moderation like it should always be
 
