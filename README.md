@@ -93,6 +93,7 @@ This is a major problem for people that like flashy shaders/effects as well they
     ---
     ## DiosCarmesi 
     - [VRC Link](https://vrchat.com/home/user/usr_c870c724-77a8-49f3-b1d6-bae1c79046de)
+    - [Twitter Link](https://twitter.com/ArtCarmesi)
     ---
     ## Delvi 
     - [VRC Link](https://vrchat.com/home/user/usr_9f81e7ef-3e18-4826-bb83-12a090212dea)
@@ -129,7 +130,7 @@ This is a major problem for people that like flashy shaders/effects as well they
     ## Bloodmist 
     - [VRC Link](https://vrchat.com/home/user/usr_4afcd1c8-7510-4985-8434-7d99cf12e2fa)
     ---
-    ## Ṁonsterwolḟ 
+    ## Ṁonsterwolḟ/Werewolf Husky 
     - [VRC Link](https://vrchat.com/home/user/usr_08deb75f-bf92-436a-9658-00f325bc2063)
     ---
     ## Zunkz 
@@ -230,7 +231,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 - The Udon moderation guidelines have not been Deleted Its cause VRchats knows if they did that it would create more Anarchy and someone attempted to report this Document to github for private information so i added more disclaimers for people as everything im doing is just looking stuff up and taking informatuion that i gather from my friends I made this document so people can block these people so that these people do not have any power to harass others 
 ---
 # **Disclaimers**
-- every bit of information gatherd is public information as these people have named there Twitter accounts the same as there Main vrchat accounts that is how i got all this info **i do not plan to Dox the people in this document**
+- every bit of information gatherd is public information as these people have named there Twitter accounts the same as there Main vrchat accounts or they have it linked to there VRC profile that is how i got all this info **i do not plan to Dox the people in this document**
 
 # **Maintained by Koyoinu**
 - ## if you want your name off the list quit this whole your a real moderator bullshit and let vrchat handle moderation like it should always be
