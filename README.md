@@ -225,7 +225,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 ---
 ## 5/3/2023 4:35 PM CST
 - The Readme got a massive overhual
-
+---
 ## 5/4/2023 7:00 PM CST
 - The Udon moderation guidelines have not been Deleted Its cause VRchats knows if they did that it would create more Anarchy and someone attempted to report this Document to github for private information so i added more disclaimers for people as everything im doing is just looking stuff up and taking informatuion that i gather from my friends I made this document so people can block these people so that these people do not have any power to harass others 
 ---
