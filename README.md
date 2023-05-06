@@ -183,6 +183,8 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 - [Proof of stalking](https://twitter.com/K0Y0INU/status/1654215892773793794?s=20)
 
+- [Proof of Breaking the two 3s of the guidelines](https://twitter.com/K0Y0INU/status/1654638873304023040?s=20)
+
 - [VIDEO VRC please stop united moderation](https://youtu.be/KXPu-dLo49U)
 
 # **"Guidelines are not Rules"**
