@@ -187,6 +187,8 @@ This is a major problem for people that like flashy shaders/effects as well they
 
 - [Tau saying that jews did not die](https://twitter.com/K0Y0INU/status/1655282690755575809?s=20)
 
+- [Tau comparing more people to Nazis](https://www.reddit.com/r/VRchat/comments/12jvp8b/comment/jk7mdp1/?utm_source=share&utm_medium=web2x&context=3)
+
 - [VIDEO VRC please stop united moderation](https://youtu.be/KXPu-dLo49U)
 
 # **"Guidelines are not Rules"**
