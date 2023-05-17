@@ -200,7 +200,7 @@ This is a major problem for people that like flashy shaders/effects as well they
 ![image](https://github.com/Koyoinu/VRC-United-moderation-block-on-sight/assets/85961107/32af17bb-4090-46bb-a84a-f7069b611fc4)
 
 # **a note to United moderation**
-- If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evastion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
+- If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evasion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
 
 
 # **Interesting facts**
