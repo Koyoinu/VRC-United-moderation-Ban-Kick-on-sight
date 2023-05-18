@@ -196,6 +196,9 @@ This is a major problem for people that like flashy shaders/effects as well they
 # **One of United Moderation staff asking how to make Crashers**
 ![image](https://github.com/Koyoinu/VRC-United-moderation-block-on-sight/assets/85961107/32af17bb-4090-46bb-a84a-f7069b611fc4)
 
+# **Proof of Automoderation bans and Wrongful Mass reports**
+![ebb62871c7804d59b3a78c9e3d3b27f7](https://github.com/Koyoinu/VRC-United-moderation-block-on-sight/assets/85961107/20891bbd-e0ed-433f-8988-2476d2db40a7)
+
 # **a note to United moderation**
 - If you find this then you have no power the easyiest thing to do with your power tripping mentality is something you couldnt do is to block you and your alts you call it ban evasion its more like box evasion you never really had the power to ban anyone all you do is push your problems away rather then really shutting them out by blocking those you dont like.
 
