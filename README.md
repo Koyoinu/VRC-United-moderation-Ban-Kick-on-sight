@@ -86,9 +86,6 @@ This is a major problem for people that like flashy shaders/effects as well they
     - [VRC Link](https://vrchat.com/home/user/usr_11615d3f-1c5f-42be-9aae-5880544a311e)
     - [Twitter Link](https://twitter.com/t3hwinz)
     ---
-    ## Foxrin
-    - [VRC Link](https://vrchat.com/home/user/usr_dd4fb334-a6c7-46b1-a0bf-43e37b60cf89)
-    ---
     ## Enexius 
     - [VRC Link](https://vrchat.com/home/user/usr_3ca4fbba-5f8f-4bb7-919e-e05947c9858a)
     ---
