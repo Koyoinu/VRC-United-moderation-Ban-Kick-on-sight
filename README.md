@@ -1,3 +1,11 @@
+# as of Aug 24, 2023 the Udon moderation guidelines have been taken down by vrchat due to group instances being a thing
+![image](https://github.com/Koyoinu/VRC-United-moderation-block-on-sight/assets/85961107/e75a909b-77df-4ce4-9967-30598e133c5e)
+
+
+
+
+
+
 # **This is a list of all the United Moderation staff there alts and there name takers**
 ## **United moderation is not the Official VRchat Moderation team they mass report peoples accounts they dont like they stalk peoples accounts they dont like**
 
